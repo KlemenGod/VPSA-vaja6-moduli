@@ -1,0 +1,1 @@
+# VPSA-vaja6-moduli
